@@ -1,0 +1,1 @@
+![Image of Taylor Hanson](https://ewscripps.brightspotcdn.com/dims4/default/2c6ad14/2147483647/strip/true/crop/640x360+0+60/resize/1280x720!/quality/90/?url=https%3A%2F%2Fmediaassets.kjrh.com%2Fphoto%2F2018%2F05%2F07%2FTaylor%20Hanson_1525718486866.jpg_86102071_ver1.0_640_480.jpg)
